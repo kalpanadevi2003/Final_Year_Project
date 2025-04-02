@@ -1,3 +1,3 @@
-A1 - BATCH
+                                                                                                      A1 - BATCH
 
-EMPOWER ASSIST: OFFLINE SPEECH & GESTURE CONTROLLED SMART SYSTEM FOR SAFETY
+                                                                      EMPOWER ASSIST: OFFLINE SPEECH & GESTURE CONTROLLED SMART SYSTEM FOR SAFETY
